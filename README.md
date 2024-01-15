@@ -1,1 +1,19 @@
 # Equal-Justice-Initiative
+
+For Immediate Release Tuesday, October 14, 2014
+Contact: Bryan Stevenson, 334-269-1803, bstevenson@eji.org
+Equal Justice Initiative Files Federal Lawsuit Against
+Alabama Department of Corrections Over Dangerous and Violent Conditions at St. Clair Correctional Facility
+(Montgomery, AL; October 14, 2014) The Equal Justice Initiative (EJI) filed a class action lawsuit in federal court today on behalf of men incarcerated at St. Clair Correctional Facility in Springville, Alabama. EJI is filing the suit following the failure of the Alabama Department of Corrections to respond to dangerous conditions and an extraordinarily high rate of violence at St. Clair, including six homicides in the past thirty-six months. EJI asserts in the complaint that violence at the severely overcrowded facility can be traced to poor management, noncompliance with protocols and procedures, and corruption.
+EJI’s investigation into conditions at St. Clair revealed mismanagement, poor leadership, and frequent verbal and physical abuse by some officers, including several high ranking supervisors. EJI has documented serious and chronic lapses in security, including broken and non-functioning locks on the majority of cell doors. Prison leadership and staff tolerate a culture of violence at St. Clair, where weekly stabbings and violent assaults are too often deadly.
+Carter Davenport was promoted to Warden at St. Clair Correctional Facility despite a history of discipline for unprofessional conduct, including an incident in 2012 when Davenport punched a handcuffed prisoner in the face. Under Warden Davenport’s leadership, fatal and non-fatal stabbing incidents have escalated at St. Clair, with at least six homicides in the past thirty-six months and multiple inmates suffering near-fatal injuries that have required extended offsite hospital treatment. Since Warden Davenport’s arrival, St. Clair has consistently had one of the highest annual homicide rates in the country.
+Because of poor leadership, drugs and other contraband — often brought into the facility and sold to prisoners by officers or staff — are prevalent, creating instability and increasing violence. The potential for violence is exacerbated by new policies that have eliminated or severely cut back mental health and drug treatment services and rehabilitative programming, limited recreation, and removed books and other constructive activities from housing units.
+ 
+In April 2014, EJI shared its troubling findings with Alabama Department of Corrections Commissioner (ADOC) Kim Thomas and asked him to investigate the escalating violence at St. Clair under the leadership of Warden Carter Davenport. In June 2014, after another murder, EJI renewed its formal request for the immediate removal of Warden Davenport and the appointment of correctional staff who can address the dramatic increase in serious violence at the prison.
+Yet another homicide occurred when Timothy Duncan was killed at St. Clair in September 2014. The department’s inaction has forced EJI to initiate court action to address the increasingly perilous situation at St. Clair. “We believe we’ve been very patient with prison authorities, but they have taken no action to address these urgent problems,” said EJI Director Bryan Stevenson, who filed the lawsuit. “ADOC’s failure to manage its prisons safely is not about a lack of money, but a lack of will to act responsibly. The situation at St. Clair is getting worse and immediate action is required.”
+If you would like to speak with Bryan Stevenson, Executive Director of the Equal Justice Initiative, please contact him at: 334-269-1803 or bstevenson@eji.org.
+###
+      The Equal Justice Initiative is a private, nonprofit organization that provides legal representation to indigent defendants and prisoners who have been denied fair and just treatment in the legal system.
+
+    Copyright 2024 Johnathan Edir Veliz
+    
